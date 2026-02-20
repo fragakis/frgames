@@ -1,0 +1,1 @@
+# frgames privacy-policy
